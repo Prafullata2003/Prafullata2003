@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Praful Ohol
+# Hi there 👋, I'm Prafullata Ohol
 
 🚀 Fresher Software Developer | 🌐 Web Development Enthusiast  
 💡 Passionate about building real-world projects and solving problems  
